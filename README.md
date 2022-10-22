@@ -8,10 +8,10 @@ I am going to stop rambling and get into what I am _actually_ supposed to be doi
 
 ## About Me: Kenneth Jackson :)
 
-Hellooooo ladies and gentlemen, welcome to a very self-absored take on humanity in which I only talk about my life and things that make me happy while I type with weird _underlines_ and **asterisks** everywhere on the page that you cannot see because **_al_mighty** and **_all_seeing** in this realm and you are but a mortal who can only read what I want you to read!
+Hellooooo ladies and gentlemen, welcome to a very self-absored take on humanity in which I only talk about my life and things that make me happy while I type with weird _underlines_ and **asterisks** everywhere on the page that you cannot see because **almighty** and **allseeing** in this realm and you are but a mortal who can only read what I want you to read!
 
 ### Here are a couple things about me:
 - I love art and drawing pretty much anything.
-- I'm addicted to watching anything on [YouTube](www.youtube.com).
+- I'm addicted to watching literally anything on [YouTube](www.youtube.com).
 - 
 
