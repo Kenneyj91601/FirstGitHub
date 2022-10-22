@@ -13,5 +13,16 @@ Hellooooo ladies and gentlemen, welcome to a very self-absored take on humanity 
 ### Here are a couple things about me:
 - I love art and drawing pretty much anything.
 - I'm addicted to watching literally anything on [YouTube](www.youtube.com).
-- 
+- I make music of my own
+- Skteboarding
+- Hanging with my friends
+- etc
+
+# This also code that I have done before about me if you wanna know more of the same things...
+
+'print('Hello, my name is Kenneth Jackson, or Kenney.')
+print('I am in the discovery center, but will hopefully be pursuing an IT degree!')
+print('Things that I do are art, hang with friends, and skateboard all the time.')
+print('Another big thing that I like to do is make all kinds of genres of music. There is not really a limit to what I like to hear and create.')
+print('Thats a few things about me, hope you think Im cool :)')'
 
